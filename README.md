@@ -1,35 +1,32 @@
-# 💍 Your Story Events – Helping You Plan the Perfect Wedding
+# 🎉 Your Story Events – Planning Your Party or Special Event
 
-At **Your Story Events**, we’re here to make wedding planning stress-free and unforgettable. Based in **Milton Keynes**, we turn your love story into a breathtaking celebration — from intimate micro weddings to grand 200+ guest affairs.
-
----
-
-## ✨ Full Wedding Planning Service
-
-Are you newly engaged and unsure where to start? Feeling overwhelmed or short on time?
-
-Our **full-service wedding planning** package takes care of everything, so you can focus on the magic of your day:
-
-- Venue sourcing  
-- Supplier coordination  
-- Styling and design  
-- Budget management  
-- Timeline creation  
-- On-the-day coordination  
-
-Whether you envision a **luxury estate**, a **marquee in the garden**, or a **chic city venue**, we’ll bring it to life with precision and creativity.
+At **Your Story Events**, we bring over a decade of experience to planning unforgettable **parties and special celebrations** across the UK. Whether you're organising a surprise proposal, a milestone birthday, or an elegant anniversary dinner — we make your event **seamless, stylish, and personal**.
 
 ---
 
-## 💡 Why Choose Your Story Events?
+## 🥂 Bespoke Event Planning
 
-- Tailored planning for each couple’s unique story  
-- Trusted network of top-tier venues and suppliers  
-- Calm, expert support throughout your journey  
-- From concept to confetti — we’re with you every step  
-- Perfect for busy professionals or couples abroad  
+We plan events that reflect **your personality and purpose**, and we can be involved as much or as little as you need:
 
-> Don’t let the stress steal your excitement — we handle the details so you can enjoy the dream.
+- Surprise proposals  
+- Themed birthday parties  
+- Anniversary celebrations  
+- Private dining experiences  
+- Intimate gatherings or large-scale events  
+
+From **concept creation** to **on-the-day coordination**, our team ensures every detail is taken care of — so you can focus on enjoying your moment.
+
+---
+
+## 🌟 Why Choose Your Story Events?
+
+- 10+ years of event planning experience  
+- Passionate about creating fun, detailed, and stylish experiences  
+- Tailored service to suit your budget and level of involvement  
+- Trusted suppliers and venues across the UK  
+- Calm, creative, and dedicated to making your party unforgettable  
+
+> Let’s turn your ideas into a flawless celebration that tells your story.
 
 ---
 
